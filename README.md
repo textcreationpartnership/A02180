@@ -35,9 +35,35 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A most sweete and assured comfort for all those that are afflicted in consciscience [sic], or troubl
+
+1. TO THE RIGHT
+Worshipfull Sir DRVE
+DRVRIE, Knight:
+W. I. wisneth continuall
+peace of conscience.
+
+1. TO THE READER.
+
 #####Body#####
-A most sweete and assured comfort for all those that are afflicted in consciscience [sic], or troubl
+
+1. A MOST
+sweet Comfort
+for an afflicted
+Conscience.
+
+1. A Letter from M. Robert
+Greeneham to a frend of
+his, against hardnesse of
+heart.
+
+1. AN OTHER COMfortable
+Letter by Master
+R. G.
+
+1. Sweet and sure signes of Election,
+to them specially that are
+brought low.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
